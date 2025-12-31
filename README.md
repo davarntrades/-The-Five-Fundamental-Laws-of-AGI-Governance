@@ -1,0 +1,1 @@
+# -The-Five-Fundamental-Laws-of-AGI-Governance
